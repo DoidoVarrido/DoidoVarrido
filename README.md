@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: DoidoVarrido 
 - ⚡ Fun fact: DoidoVarrido
 -->
+![](https://giphy.com/gifs/despicable-me-minions-gif-1uPiL9Amv5zkk)
